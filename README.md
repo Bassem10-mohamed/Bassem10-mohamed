@@ -22,7 +22,7 @@ Despite my age, I’m constantly learning, experimenting, and pushing the limits
 
 - 🎥 **YouTube:** [@rmzoinso](https://youtube.com/@rmzoinso?si=_slhZS9ks_V8j_7j)  
 - 📸 **Instagram:** [@rmz_oinso](https://www.instagram.com/rmz_oinso?igsh=b3phNnJoYnR6ZGxy)  
-- 🐦 **X (Twitter):** [@TAP_u8m](https://www.x.com/TAP_u8m?t=UNvfFWU5bEBqOBVg70kyjQ&s=09)
+- 🐦 **X (Twitter):** [@rmzoinso](https://x.com/rmzoinso)
 
 ---
 
